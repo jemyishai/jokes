@@ -18,3 +18,4 @@ What do you call a dictionary on drugs? High definition.
 
 It’s hard to explain puns to kleptomaniacs, because they take everything literally.
 
+How do you catch a squirrel? Climb a tree and act like a nut.
